@@ -22,3 +22,6 @@ Your wife sold her soul to the devil and left you all alone. Go to Hell and brin
 - **Back to Earth (Neutral ending; always available):** Fight your way back to earth and live happily ever after.
 - **Ascend to Heaven (Saint ending; only available if morale was positive above a certain threshold):** Save the souls of everyone you've encountered and ascend to Heaven and live happily ever after.
 - **Rule in Hell (Chaotic ending; only available if morale was negative below a certain threshold):** Defeat all that oppose you and take control of Hell and live happily ever after.
+
+# Discord Server
+[![Join the offical 7GTH Discord server](https://cdn.discordapp.com/attachments/790351066607648828/842259907461906492/Discord-LogoWordmark-Color.png)](https://discord.com/invite/MXHpy24mAG)
