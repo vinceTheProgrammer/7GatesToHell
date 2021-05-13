@@ -7,7 +7,7 @@ Your wife sold her soul to the devil and left you all alone. Go to Hell and brin
 - Safe zones in-between every chapter.
 
 ## Chapters (Concept Summaries)
-- Gate 1: Pull off a busy road to explore the location of the 7 Gates to Hell urban legend. (Optionally) read a sign that explains that the 7 gates to hell are the 7 road underpasses a little further up the road and that the urban legend goes that if you pass under all 7, you'll arrive at Hell. Pass under all 7 only to be met with another busy road and a sign saying the same thing as the first sign you read. Explore a bit to find a water way that leads to the actual 1st gate to Hell.
+- Gate 1: Pull off a busy road to explore the location of the 7 Gates to Hell urban legend. Read a sign that explains that the 7 gates to hell are the 7 road underpasses a little further up the road and that the urban legend goes that if you pass under all 7, you'll arrive at Hell. Pass under all 7 only to be met with another busy road and a sign saying the same thing as the first sign you read. Explore a bit to find a water way that leads to the actual 1st gate to Hell.
 
 - **Gate 2:** TBD
 - **Gate 3:** TBD
